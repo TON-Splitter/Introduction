@@ -2,7 +2,7 @@
 
 This is TON Splitter github. Product repos are in private mode. 
 
-## If you are judges from TON foundation, please contact https://t.me/gregshen0925 to receive invitation.
+## If you are judges from TON foundation, please contact https://t.me/piercetm to receive invitation.
 
 
 # Links
